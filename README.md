@@ -1,0 +1,2 @@
+# notes
+Github first repo
