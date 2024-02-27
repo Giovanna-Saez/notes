@@ -54,7 +54,7 @@ Las metaloproteinasas de matriz son endopeptidasas dependientes de zinc y son re
                  (               )
                   `-------------'
 ~~~
-  © Giovanna ©
+  © Giovanna © G
 
 █║▌│█│║▌║││█║▌║▌║
 
